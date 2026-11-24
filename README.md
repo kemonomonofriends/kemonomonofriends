@@ -1,1 +1,2 @@
-dni non friends, iwec always when trying to int (as a friend)
+<p align=“center”> dni sometimes, iwec always when trying to int
+isfj 9w1, fandoms: 2hu, kemono friends, higurashi, f&h, kitakawa, etc.. </p>
