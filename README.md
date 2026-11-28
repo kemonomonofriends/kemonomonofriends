@@ -1,5 +1,5 @@
 <div align="center">
-<img src="https://file.garden/aGePDE9X_j-yMokP/Untitled59_20261128220529.png" alt="me and my gf" width="400">
+<img src="https://file.garden/aGePDE9X_j-yMokP/kemonomonofriends.png" alt="me and my gf" width="400">
 
 <p align="center">
   <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=31rj3bbtw5nlxqoubgxjahgkzvhi&redirect=true">
